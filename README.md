@@ -1,5 +1,5 @@
 # 💫 About Me:
-Junior Software Developer in Rakshak |<br>Undergrad Student at IIT Bombay
+Junior Software Developer at Rakshak |<br>Undergrad Student at IIT Bombay
 
 
 ## 🌐 Socials:
